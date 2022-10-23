@@ -1,1 +1,8 @@
-https://github.com/AldiSiagian/Image.git
+![1](https://user-images.githubusercontent.com/74952459/197385390-8f74dc27-e74f-46e8-8d25-8c237dd00c53.PNG)
+![2](https://user-images.githubusercontent.com/74952459/197385393-5113bfe4-1bd6-40ca-8811-a45963e2c7dd.PNG)
+![3](https://user-images.githubusercontent.com/74952459/197385394-2b0b203e-9502-457c-b0ab-dfa7a8f60a2d.PNG)
+![4](https://user-images.githubusercontent.com/74952459/197385395-1afb2c68-2ce6-4a5f-94ef-51295fdca6f4.PNG)
+![5](https://user-images.githubusercontent.com/74952459/197385397-8af59856-c70e-40d2-87a2-52fc280ec703.PNG)
+![6](https://user-images.githubusercontent.com/74952459/197385399-9e95b866-dc25-4591-930c-4ad0ac4489d4.PNG)
+![7](https://user-images.githubusercontent.com/74952459/197385401-70f54755-4fec-4453-aeea-3d1c9a05e7ee.PNG)
+![8](https://user-images.githubusercontent.com/74952459/197385404-b3a69df0-b78a-4b65-b8e6-4d34e601c5e5.PNG)
